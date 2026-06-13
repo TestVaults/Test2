@@ -1,0 +1,1 @@
+This is a new note for my folder to just capture some thoughts. 
